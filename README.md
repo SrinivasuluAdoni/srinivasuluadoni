@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SrinivasuluAdoni
+- 👋 Hi, I’m @Srinivasulu Adoni
 
 
 <!---
